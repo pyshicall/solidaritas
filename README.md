@@ -1,2 +1,0 @@
-# solidaritas
-Masih pemula
